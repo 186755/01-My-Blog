@@ -1,0 +1,2 @@
+# Topic Commitment 
+I am planning on writing a personal blog about my daily dairy farm activities.  I have a farm at home so I will use previous experiences I have had, or current events as they happen to write about. My goal is to inform stay-at-home moms about exactly what happens on my farm and show them that animals are treated with great care and respect. Also, informing them about where their food comes from. 
