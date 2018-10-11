@@ -1,0 +1,12 @@
+## My Farm
+- Where it is located
+- How to get there
+- Where each of the cows on the farm stay
+- Where the calves stay
+- How many cows and calves total
+- Who works on the farm and thier tasks
+- How/what/when the cows and calves get fed
+- How/when the cows get milked
+- What crops are grown on the farm
+- What type of equiptment is used to harvest and maintain the crops
+- How many ponds are on the farm and where they are located
