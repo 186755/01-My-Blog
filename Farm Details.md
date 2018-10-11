@@ -10,3 +10,4 @@
 - What crops are grown on the farm
 - What type of equiptment is used to harvest and maintain the crops
 - How many ponds are on the farm and where they are located
+- Protocols that have been put into place
