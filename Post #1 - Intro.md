@@ -1,4 +1,4 @@
-##Introductory Post
+## Introductory Post
 
 Welcome to Dairy Gal! I’ve always wanted to share my stories about what happens on my dairy farm every day, but have never thought of a good way to do it.  Until now! My goal for this blog is to share day-to-day stories on the different activities that go on at my family farm, as well as inform readers about general facts about the dairy industry.  I hope to relate some of these stories to daily activates you might participate in, simply adding an agricultural perspective!  
 
