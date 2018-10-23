@@ -1,3 +1,5 @@
+##Introductory Post
+
 Welcome to Dairy Gal! I’ve always wanted to share my stories about what happens on my dairy farm every day, but have never thought of a good way to do it.  Until now! My goal for this blog is to share day-to-day stories on the different activities that go on at my family farm, as well as inform readers about general facts about the dairy industry.  I hope to relate some of these stories to daily activates you might participate in, simply adding an agricultural perspective!  
 
 Twice a day we milk about 300 dairy cows and feed about 60 calves, with numerous other activities in-between to keep the farm running.  I hope to educate you on some of the daily tasks that get completed on the farm.  A lot of people do not know how much is required to maintain a farm-especially dairy! Posts will offer knowledge about how our calves get fed, details about milking cows on the farm, what the different dairy breeds we have offer for production, and many more other general facts about dairy farming.  
